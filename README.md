@@ -3,7 +3,7 @@
 ## Olá! Eu sou o Pedro Afonso, seja bem vindo!!
 
 - 🌱 Atualmente estou cursando Análise e Desenvolvimento de Sistemas e estou iniciando a minha jornada na area de desenvolvimento
-- 📫 Caso queira entrar em contato comigo: pedro.marcato@sptech.school
+- 📫 Caso queira entrar em contato comigo: pdornelasmarcato@gmail.com 
 
 <div align="center">
   <a href="https://github.com/pedroafonso0728">
