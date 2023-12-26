@@ -8,7 +8,7 @@
 
 - 📄 Sobre mim: [https://www.linkedin.com/in/pedro-afonso-13ab35246/](https://www.linkedin.com/in/pedro-afonso-13ab35246/)
 
-- ⚡ Fatos sobre mim: **Sei imitar o Scooby-Doo e algumas outras imitações e amo animais selvagens!**
+- ⚡ Fatos sobre mim: **Sei imitar o Scooby-Doo e amo animais selvagens!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
